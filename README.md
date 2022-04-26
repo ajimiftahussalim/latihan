@@ -1,0 +1,2 @@
+# latihan
+membuat kacang sop
